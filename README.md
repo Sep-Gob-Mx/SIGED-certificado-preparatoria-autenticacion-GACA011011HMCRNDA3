@@ -1,0 +1,2 @@
+# SIGED-certificado-preparatoria-autenticacion-GACA011011HMCRNDA3
+GACA011011HMCRNDA3
